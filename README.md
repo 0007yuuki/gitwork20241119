@@ -1,3 +1,5 @@
 aiueo
 
 ドレミ
+
+kakikukeko
